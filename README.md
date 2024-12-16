@@ -1,4 +1,5 @@
 # Martynenko-Matvey_algoritmizatciya
-https://docs.google.com/document/d/16FoXss7YXg13fR2Ixy94sGaLypQxb1Zj-SCsN8Zt_Ys/edit?usp=sharing
+https://drive.google.com/file/d/1JTh-krBmcOICk4-1nS_d4h3naSQo1-3p/view?usp=sharing
+
 
 
